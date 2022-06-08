@@ -1,0 +1,23 @@
+-  Hello there, My name's Sam Korth!
+-  
+-  I play and make games, from the art to the code and everything in between!
+-
+-
+-
+-  My socials and current projects can be found below!
+-         |  |  |  |  |  |  |  |
+-         V  V  V  V  V  V  V  V
+-
+-  LinkedIn - linkedin.com/in/samuelrkorth/
+-
+-  Twitter - twitter.com/korth_sam
+-
+-  ArtStation - artstation.com/shamkorff
+-
+-  College Project - digitaldonutgames.wordpress.com/
+-
+-
+-
+-  If you have a potential for collaboration with me, drop a line or two @ samuelryankorth@gmail.com
+-
+-  I am looking forward to hearing from you! :)
