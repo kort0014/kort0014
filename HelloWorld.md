@@ -18,6 +18,6 @@
 -
 -
 -
--  If you have a potential for collaboration with me, drop a line or two @ samuelryankorth@gmail.com
+-  If you have a potential for collaboration with me, drop a line or two at: samuelryankorth@gmail.com
 -
 -  I am looking forward to hearing from you! :)
